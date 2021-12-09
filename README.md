@@ -26,3 +26,6 @@ Grid Framework v1.3.1
 
 Unity 设计模式教程
 链接: https://pan.baidu.com/s/15X6B6T5A2R7RftQCEFp0Zg 提取码: 59w3 
+
+
+https://www.zhihu.com/question/290166902/answer/468650733
