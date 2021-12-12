@@ -1,6 +1,10 @@
 # transfersmt
 用来传输一些文本信息的
 
+book dedao
+https://pan.baidu.com/s/1L4EARI-HGNWnR9KsGTonCg 提取码: bna5 
+
+
 Black And Blue	When It's All Over We Still Have To Clear Up	Snow Patrol	
 Miramax	Samplitude Vol 14	Olav Basoski	
 Tuva blues	Stepmother City	Sainkho Namtchylak	
